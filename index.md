@@ -3,4 +3,4 @@
 ### My favorite things:
 - Fun Slides
 - No exams or REAL quizzes
-- Chill TAs leading the course
+- _Chill_ TAs leading the course
